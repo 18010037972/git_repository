@@ -1,1 +1,1 @@
-nc wd
+wo shi sb
